@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @jaspeper
-- 👀 I’m interested in coding, chess, video editing, creating youtube videos, drawing, reading, debsting, and much more!
+- 👀 I’m interested in coding, chess, video editing, creating youtube videos, drawing, reading, debating, and much more!
 - 🌱 I’m currently learning coding, being a youtuber, video editing, debating and chess.
 - 💞️ I’m looking to collaborate on being a video editer or youtube.
 - 📫 How to reach me the following: jasperhung888@gmail.com
